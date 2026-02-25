@@ -19,4 +19,4 @@ Cybersecurity Student | Future Security Professional
 ​Brazilian Jiu-Jitsu, Wrestling, and Judo.
 ​Mixed Martial Arts (MMA).
 ​Professional Contact
-​LinkedIn: (https://www.linkedin.com/in/tariqatiyeh)
+​LinkedIn: (https://www.linkedin.com/in/tariq-atiyeh-61a884378?utm_source=share_via&utm_content=profile&utm_medium=member_android)
